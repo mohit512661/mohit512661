@@ -3,13 +3,13 @@
 
 - 🌱 I’m currently learning **Full Stack Web Development at Masai School**
 
-- 👨‍💻 My Portfolio [mohit512661@github.io](mohit512661@github.io)
+- 👨‍💻 My Portfolio - [mohit512661@github.io](mohit512661@github.io)
 
 - 📝 I write about my projects [https://mohit-rawat.medium.com/](https://mohit-rawat.medium.com/)
 
 - 💬 Ask me about **How to keep yourself motivated ;)**
 
-- 📫 How to reach me **mohitrawat0171@gmail.com**
+- 📫 How to reach me - **mohitrawat0171@gmail.com**
 
 - 📄 Resume -  [https://drive.google.com/file/d/1b6W_W3GDlX-u7GlGO6OGH7sc7jroI6Lq/view?usp=sharing](https://drive.google.com/file/d/1b6W_W3GDlX-u7GlGO6OGH7sc7jroI6Lq/view?usp=sharing)
 
