@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mohitrawat0171@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1b6W_W3GDlX-u7GlGO6OGH7sc7jroI6Lq/view?usp=sharing](https://drive.google.com/file/d/1b6W_W3GDlX-u7GlGO6OGH7sc7jroI6Lq/view?usp=sharing)
+- 📄 Resume -  [https://drive.google.com/file/d/1b6W_W3GDlX-u7GlGO6OGH7sc7jroI6Lq/view?usp=sharing](https://drive.google.com/file/d/1b6W_W3GDlX-u7GlGO6OGH7sc7jroI6Lq/view?usp=sharing)
 
 - ⚡ Fact about me **Always ready to talk to anyone on any topic ;)**
 
